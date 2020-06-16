@@ -9,5 +9,5 @@ A passion for science brought me to the US, where I developed an interest in the
 ### Home
 ![Image of the Andes and Amzon slope](images/home.jpg "Andes Range and Amazon Slope")
 
-### Link
+### Share on
 [K'allam'p](https://www.facebook.com/Kallamp-102911618117932/?modal=admin_todo_tour)
